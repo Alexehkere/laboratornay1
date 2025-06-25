@@ -1,1 +1,0 @@
-# laboratornay1
